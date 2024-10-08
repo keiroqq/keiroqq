@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+deadinside✓emo✓goth✓drain✓epileptic✓paranoid✓toxic✓bipolar✓depressed✓tilted✓antisocial✓sad✓broken✓milk✓eggs✓dolbaeb✓
 <!--
 **keiroqq/keiroqq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
